@@ -13,7 +13,7 @@
 
 #### I also try to blog ✍️, check it out : [Hashnode Blog](https://nehabadiani.hashnode.dev/)
 
-#### You can reach out to me on [my email](mailto:nehabadiani60@gmail.com) or here [Neha Badiani](https://linktr.ee/nehabadiani)
+#### You can reach out to me on [my email](mailto:nehabadiani60@gmail.com) or here [Neha Badiani](https://bio.link/nehabadiani)
 
 #### Have a good day, bye! :shipit:
 
